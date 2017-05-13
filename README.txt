@@ -1,2 +1,2 @@
 Ghanshyam Pathak
-Software Developer
+Software
